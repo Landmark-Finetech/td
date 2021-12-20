@@ -1,3 +1,6 @@
+America
+China 
+Rome
 I Love you
 She loves me 
 We love ourselves 
